@@ -1,5 +1,5 @@
 # 💫 About Me:
-👯 I’m looking to collaborate on Machine Learning or anything
+👯 I’m looking to collaborate
 
 
 ## 🌐 Socials:
